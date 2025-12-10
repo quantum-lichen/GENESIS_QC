@@ -1,0 +1,2 @@
+# GENESIS_QC
+ARCHITECTURE FRACTALE V.1 Premier IA culturel
